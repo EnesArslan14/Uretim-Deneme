@@ -1,1 +1,0 @@
-# Uretim-Deneme
